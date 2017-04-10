@@ -1,0 +1,10 @@
+Drew Watkins
+10/31/2011
+ENG 105
+
+# Food Inc. Reflection
+The movie Food, Inc. seemed to be a very accurate representation of the food industry in America, although it was flawed in that it only represented the views of those who are against the modernization and industrialization of the food industry. By using words such as "the system" to describe the food industry, Food Inc. created a certain connotation which made the food industry synonymous with big business, bureaucracy, and overpowering governments.
+
+Even though Food Inc. was biased in favor of traditional farming and food production systems, it did back up their claims with plenty of evidence. Food Inc. provided this eveidence through very vivid imagery which played on people’s emotions and their reasoning. By showing images such as overcrowded chicken coops, slaughter factories, and the processing of meat with ammonia, Food Inc. created a view that meat processing was dirty and unsanitary. By telling the story about Kevin, Food Inc. touched people’s hearts with a story about losing a child and thus increased awareness about conditions which lead to food poisoning. By talking about the downsides of genetically modified crops and the legal battle farmers face against Monsanto, Food inc. played off people’s dislike of big business and their appreciation for the underdog.
+
+Overall, I feel like Food inc. is a movie that every person should watch at least once. One of the biggest issues facing our planet today are the problems facing food supplies and the unhealthiness which accompanies mass produced, heavily subsidized foods. For example, diabetes and cardiobascular disease. Because of movies such as Food Inc., Supersize Me, King Corn, and The Future of Food, issues concerning the health and wellness of people which are linked to food intakes are starting to surface and become a part of the current political rhetoric. Even though some of these movies may be biased against the mass food production industry, they are still a vital part of journalism and letting the truth about our food be known.
